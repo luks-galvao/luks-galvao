@@ -1,0 +1,3 @@
+- 👋 olá me chamo Lucas Galvão
+- 👀 procuro conhecimento em desenvolvimento paginas web.
+- INTP
